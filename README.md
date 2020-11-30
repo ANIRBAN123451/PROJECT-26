@@ -1,1 +1,1 @@
-# PROJECT-26
+The dish was developed in 1947 by the founders of the Moti Mahal restaurant in Delhi, India. The dish was made "by chance" by mixing leftover chicken in a tomato gravy, rich in butter and cream. In 1974, a recipe was published for "Murgh Makhani (Tandoori chicken cooked in butter and tomato sauce)". In 1975, the English phrase "butter chicken" first appeared in print, as a specialty of the house at Gaylord Indian restaurant in Manhattan. In Australia and New Zealand, it is also eaten as a pie filling. The dish is common in India and many other countries
